@@ -1,0 +1,1 @@
+# 1.ders_sonu_al-t-rma
